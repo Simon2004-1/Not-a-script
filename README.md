@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Simon
+- 👋 Hi, I’m Simon
 - 👀 I’m interested in planes?
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on nothing
